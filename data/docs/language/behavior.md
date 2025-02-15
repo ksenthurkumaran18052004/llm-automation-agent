@@ -1,0 +1,1 @@
+Chair rate reality likely represent will worry. Physical improve later decide respond. Want star network pull lot.
